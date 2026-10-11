@@ -1,5 +1,7 @@
 <img width="300" height="300" alt="ghostbur" src="https://github.com/user-attachments/assets/18c087f3-349c-48ed-a883-834951c4988e" />
 
+c+h freely....mostly nonverbal, dont expect a great conversation
+
 always offtab. plz w2i to get my attention
 
 i do not support wilbur's actions and never will
